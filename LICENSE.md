@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with ultimate Polymarket Algorithm | portfolio-optimization + trade-sniping, the #1 algorithm. Includes portfolio-optimization and trade-sniping
 
 
 
